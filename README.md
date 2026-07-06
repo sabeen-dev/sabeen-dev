@@ -6,4 +6,4 @@
 - 📌 Currently exploring: remote internships in bioinformatics
 
 📫 **Reach me at:** sabeentahir018@gmail.com  
-🌐 **LinkedIn:** [https://www.linkedin.com/in/sabeen-tahir-244a7134b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_appA
+🌐 **LinkedIn:** https://www.linkedin.com/in/sabeentahir/
